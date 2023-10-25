@@ -2,7 +2,7 @@
 - 👀 I’m interested in java programming language
 - 🌱 I’m currently learning java programming language
 - 💞️ I’m looking to collaborate on ?
-- 📫 How to reach me https://t.me/mamadiyevv 
+- 📫 How to reach me https://t.me/mukhammadiyevvvv
 
 <!---
 Sayyod571/Sayyod571 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
